@@ -1,3 +1,5 @@
 # hayleyrgriffin
-Add About Me
-   Business Intelligence and Anayltics and German Studies Double Major
+About Me
+  Junior- Heider College of Business at Creighton University
+  Double Major in Business Intelligence and Anayltics and German Studies 
+  
